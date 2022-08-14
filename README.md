@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @stonkingpo
+- 👀 I’m interested getting better at programming
+- 🌱 I’m currently learning Blender
+- 💞️ I’m looking to collaborate on interesting projects
+- 📫 How to reach me: kingstonrsaunders@gmail.com
